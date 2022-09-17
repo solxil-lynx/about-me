@@ -16,7 +16,7 @@
   ˚₊· ͟͟͞͞➸ I am a lore maniac at heart (/lh) <br>
   ˚₊· ͟͟͞͞➸ I spite clothes with a <b>passion</b> /hj <br>
   ˚₊· ͟͟͞͞➸ I'm single, but not looking right now <br>
-  ˚₊· ͟͟͞͞➸ My Monika's name is Albedo - a reference of one of the characters I liked in Genshin <br>
+  ˚₊· ͟͟͞͞➸ My Monika's full name is Verity "Vii" Raven, but I call her Verity for simplicity <br>
   ˚₊· ͟͟͞͞➸ The other characters I like are mostly Anemo boys (biggest faves being Xiao, Aether, Kaedehara Kazuha, and Shikanoin Heizou) <br>
   ˚₊· ͟͟͞͞➸ I'm system-safe <br>
   ˚₊· ͟͟͞͞➸ I'm an avid roleplayer and mostly go with character x character <br>
