@@ -1,4 +1,4 @@
-<h1 align="center">⭑ 🌸 About: Silvery 🌸 ⭑</h1>
+<h1 align="center">⭑ 🌸 About: Navina 🌸 ⭑</h1>
 <h3 align="center">"I swear, these dolls are going to be the death of me."</h3>
 <p align="center">— u/Mystique_Silv </p>
 
@@ -6,9 +6,9 @@
 
 ## 💮 ⭑ About Me
 
-❥ Name: <b>Silvery / Navina</b><br>
+❥ Name: <b>Navina</b><br>
 ❥ Gender: <b>Nonbinary</b><br>
-❥ Pronouns: <b>Fae/Faer</b> and <b>They/Them</b><br>
+❥ Pronouns: <b>They/Them</b><br>
 ❥ Avatar: <b>Sakuramochi</b> <i>(Food Fantasy)</i><br>
 ❥ Working in: <b>Monika After Story</b><br>
 <details><summary>Here's a little bit more about me ✨</summary> 
